@@ -36,10 +36,32 @@ The program is then multiple. The plot is first of all open to the district by i
 Through the existing part of the preserved building, I decided to install an open space for high-end water sales on the ground floor as well as a co-working level upstairs.
 For the extension and the museum part, the idea is to combine a fun and constructive workshop while creating views and a walk through the building. All grouping together towards an accessible roof terrace and its night program: an ice bar.
 
-! [] (X.png? Raw = true)
-! [] (X.png? Raw = true)
-! [] (X.png? Raw = true)
-! [] (X.png? Raw = true)
+! [] (P1.png? Raw = true)
+! [] (P2.png? Raw = true)
+! [] (P3.png? Raw = true)
+! [] (P4.png? Raw = true)
+! [] (P5.png? Raw = true)
+! [] (P6.png? Raw = true)
+! [] (P7.png? Raw = true)
+! [] (P8.png? Raw = true)
+! [] (P9.png? Raw = true)
+! [] (P10.png? Raw = true)
+! [] (P11.png? Raw = true)
+! [] (P12.png? Raw = true)
+! [] (P13.png? Raw = true)
+! [] (P14.png? Raw = true)
+! [] (P15.png? Raw = true)
+! [] (P16.png? Raw = true)
+! [] (P17.png? Raw = true)
+! [] (P18.png? Raw = true)
+! [] (P19.png? Raw = true)
+! [] (P20.png? Raw = true)
+! [] (P21.png? Raw = true)
+! [] (P22.png? Raw = true)
+! [] (P23.png? Raw = true)
+! [] (P24.png? Raw = true)
+! [] (P25.png? Raw = true)
+! [] (P26.png? Raw = true)
 
 #### This work was supervised by Miss Peggy Garcia, Mister Gaston Tolila, Mister Antonio Lazo, Mister Ary Justman, Mister Michael Halter, Mister Stéphane Miget.
 
